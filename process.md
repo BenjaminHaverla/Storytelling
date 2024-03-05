@@ -8,5 +8,5 @@ Read [COMING SOON 🎥]
 
 ## Process
 
-![brainstorm](Pictures/Mindmap1)
+![brainstorm](Pictures/Mindmap1.heic)
 
