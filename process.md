@@ -1,4 +1,4 @@
-# Brainstorm about the content of trusting yourself [DRAFT]:
+# Brainstorm about the content [DRAFT]:
 
 by Benjamín Haverla
 
